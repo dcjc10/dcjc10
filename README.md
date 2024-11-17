@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dcjc10
+- 👋 Hi, I’m @Dela Cruz Jaycee 
 - 👀 I’m interested in programing
 - 🌱 I’m currently learning programing
 - 💞️ I’m looking to collaborate on ...
